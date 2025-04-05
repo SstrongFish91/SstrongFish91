@@ -1,9 +1,5 @@
-- 👋 Hi, I’m @SstrongFish91
-- 👀 I’m interested in UNDERTALE
-- 😄 Pronouns: any
-- ⚡ Fun fact: aytwudbhiokfiywuhiam
-
-<!---
-SstrongFish91/SstrongFish91 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+𐔌 . @StrongFish91 .ᐟ  ֹ ₊꒱ Portugues/English
+𐔌 . ⋮ Eu amo UNDERTALE .ᐟ.ᐟ
+ e    ࿐ Qualquer pronome/ Any Pronoun
+       ꒰     Meow :3
+  ◠    @sstrongfish91 on discord   ୨୧   yay.ᐟ.ᐟ
